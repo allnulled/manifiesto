@@ -4,7 +4,9 @@ Primero de todo, veo que puedes leer esto.
 
 Veo que conoces el lenguaje de programación humana llamado "lenguaje natural".
 
-TODOS lo conocen.
+TODOS lo conocen. Por eso NaturalScript, como logro, es importante aún hoy. Porque se basa en un lenguaje que TODOS conocen, el lenguaje natural, pero ES UN PUENTE LIMPIO Y DIRECTO a uno que tiene mucho rodaje y uso en la comunidad de programadores, que es JavaScript.
+
+Pero vayamos mucho más atrás.
 
 ¿Que no véis que los procesos mentales que tiene que hacer una persona son menos si el lenguaje es NATURAL, 100%, SIN EXCEPCIONES?
 
