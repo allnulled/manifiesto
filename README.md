@@ -28,3 +28,10 @@ De verdad, mi mala palabra es poco comparado con el coraje que me dan estas puta
 En fin. UNIVERSIDAD LIBRE o MUERTE A LA ÉLITE, es así de simple, porque sino nos matarán ellos a todos, a base de cultivar ignorancia para autoproclamarse vencedores en ua sociedad de ratas, su sociedad de ratas.
 
 Saludos a los inconformistas, iros a la mierda el resto, que sólo os sabéis ver el ombligo de rata vuestro.
+
+
+
+NOTA: no es que me meta con los universitarios, ellos salvarán el mundo, no. Me meto con los que PRIVATIZAN el conocimiento como si no fuera un insulto y un crimen, pero todo junto. Puras ratas humanoides. O bueno, inconsciencia pura, una de dos. Y es obvio que es la primera, pues saben bien que están jodiéndola, es muy barato coger y subir todos los planes de estudios con sus respectivos libros a un servidor, y dejarlo abierto, pero como vivimos sometidos, pues seguimos como imbéciles, pensando que el que más insulta es el malo. OK, yo soy el malo. Ui, qué malo soy eh, soy más malo, voy creando guerras, enfrentando a gentes, aprovechándome de pobres, mirando con superioridad a los otros países, etc. Jejeje sip, soy el malo, sin duda, sin duda que el impotente es el malo, no el poderoso que usa el poder tan enfermamente. 
+
+
+Ya lo dije. Seré un loco por no aguantar ya, y no guardar ni una puta forma protocolaria, pero es que esa gente se ha quedado con vosotros por los símbolos, por los protocolos de mierda, TRASCIENDE YA DE UNA PUTA VEZ LAS APARIENCIAS, por favor, o si prefieres quedarte en la ignorancia, al menos ayúdame a que otros podamos salir y sanar, y lucha por la única lucha segura que hay abierta por mi parte hoy: LA UNIVERSIDAD DEBE SER GRATUITA Y ACCESIBLE, o seremos esclavos de esas putas ratas toda nuestra historia.
